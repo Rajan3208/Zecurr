@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zecurr
+- 👋 Hi, I’m @Rajan
 - 👀 I’m interested in Coding,Programming,To do Business.
 - 🌱 I’m currently doing B.tech in CSE 
 - 📫 Email-ID - rr791337@gmail.com
